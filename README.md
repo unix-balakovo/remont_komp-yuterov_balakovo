@@ -3,7 +3,7 @@
 Восстановим вашу технику с [ЮНИКС](https://clck.ru/34cB3t)
 
 
-[](https://raw.githubusercontent.com/unix-balakovo/remont_komp-yuterov_balakovo/main/0x0ss-85.jpg)
+[1](https://raw.githubusercontent.com/unix-balakovo/remont_komp-yuterov_balakovo/main/0x0ss-85.jpg)
 
 
 Профессиональный ремонт цифровой техники. Быстро, качественно, надежно. Доверьте свою технику опытным специалистам сц. [ЮНИКС](https://clck.ru/34cB3t)
